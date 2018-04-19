@@ -1,2 +1,0 @@
-# weiranma.com
-Professional Portfolio
